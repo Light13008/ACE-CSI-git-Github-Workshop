@@ -12,7 +12,7 @@ Following topics will be covered.
 
 
 
-Connect to our speaker on his social sites:
-[Linkdin:](https//www.linkedin.com/in/sarvesh-patil-559b3124b/)
-[Twitter: @SarveshPat21415]( https://x.com/SarveshPat21415?t=1U8N6StpeM76lK_uHeCXrw&s=08 )
-[Instagram: @light_infinite_101](https://www.instagram.com/light_infinite_101/)
+Connect to our speaker on his social sites:<br/>
+[Linkdin:](https//www.linkedin.com/in/sarvesh-patil-559b3124b/)<br/>
+[Twitter: @SarveshPat21415]( https://x.com/SarveshPat21415?t=1U8N6StpeM76lK_uHeCXrw&s=08 )<br/>
+[Instagram: @light_infinite_101](https://www.instagram.com/light_infinite_101/)<br/>
